@@ -1,2 +1,1 @@
-# Dynamics-
-Dual axis solar tracker
+MORINGA SCHOOL
